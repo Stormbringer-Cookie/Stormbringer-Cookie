@@ -7,6 +7,8 @@ newer straw page!!
 
 # [WIP strawpage!!](https://irumastu.straw.page)
 
+names i go by are Gen, Julie (jules), Jessica, Ginger, Festivespooks, Ms. Carpenter, Miu or more
+
 I am an ordinary highschool girl, and this page is inactive 
 (Majority at times. . . that is.)
 
