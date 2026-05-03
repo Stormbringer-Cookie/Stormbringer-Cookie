@@ -3,6 +3,8 @@
 
 # [WIP strawpage!!](https://irumastu.straw.page)
 
+# [also WIP strawpage!!](https://festivespooks.straw.page)
+
 
 <img width="500" height="27" alt="cherryblossoms3" src="https://github.com/user-attachments/assets/7825a8ac-091e-40b8-a47e-1fbf7d4abfbc" />
 
