@@ -7,5 +7,6 @@
 
 
 <img width="500" height="27" alt="cherryblossoms3" src="https://github.com/user-attachments/assets/7825a8ac-091e-40b8-a47e-1fbf7d4abfbc" />
+<img width="2048" height="1182" alt="0fff8370-c8d3-45a1-bff1-3d665175c81a" src="https://github.com/user-attachments/assets/c1fe3af6-3e3a-45c3-9b47-cc7fb1c1ff61" />
 
-<img width="2400" height="1172" alt="Addison Rae - Diet Pepsi (1)" src="https://github.com/user-attachments/assets/134a63d3-1359-425f-b27b-a3e2285f6719" /> <img width="86" height="116" alt="pony-town-sua , I&#39;m ur coquette 🎀🤑-double-nod-with-closed-eyes-blush-blinking-padded-4x" src="https://github.com/user-attachments/assets/f68236b1-316c-4a8b-b83e-6c9b42121a6e" />
+drawing by me anyways
