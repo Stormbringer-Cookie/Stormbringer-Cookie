@@ -1,5 +1,4 @@
-<img width="702" height="467" alt="Screen recording 2026-04-28 3 39 30 AM" src="https://github.com/user-attachments/assets/3858b7bb-fcc8-485c-a827-8085e57de151" />
-
+<img width="442" height="144" alt="TextStudio-Typewriter" src="https://github.com/user-attachments/assets/12209fe0-c00f-4ba4-b95c-d3dd84ae2b41" />
 
 # [WIP strawpage!!](https://irumastu.straw.page)
 
