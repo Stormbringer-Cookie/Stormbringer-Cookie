@@ -5,8 +5,6 @@
 
 
 <img width="500" height="27" alt="cherryblossoms3" src="https://github.com/user-attachments/assets/7825a8ac-091e-40b8-a47e-1fbf7d4abfbc" />
-<img width="2048" height="1182" alt="0fff8370-c8d3-45a1-bff1-3d665175c81a" src="https://github.com/user-attachments/assets/c1fe3af6-3e3a-45c3-9b47-cc7fb1c1ff61" />
 
-drawing by me anyways
-#serious talk guys, am i hot?
-<img width="999" height="562" alt="Screenshot 2026-05-15 10 11 19 PM" src="https://github.com/user-attachments/assets/0f1bede7-0652-425f-ad41-bc9c9f21c198" />
+## timestorm yuri slop
+<img width="426" height="283" alt="Screenshot 2026-05-17 4 57 24 PM" src="https://github.com/user-attachments/assets/8593f112-0344-4e92-afe1-240fd2037e2d" />
