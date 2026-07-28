@@ -1,3 +1,9 @@
+Pinterest - @Reducelettuce2010
+
+crk - @Bringingstorms
+
+close friends address before coming in contact or if you want to just wtv then follow pint or smth
+
 # [MAIN strawpage!!](https://Stormbringer-cookie.straw.page)
 
 <img width="442" height="144" alt="TextStudio-Typewriter" src="https://github.com/user-attachments/assets/12209fe0-c00f-4ba4-b95c-d3dd84ae2b41" />
