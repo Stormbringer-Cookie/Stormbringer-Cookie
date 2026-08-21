@@ -1,6 +1,11 @@
 # ୨୧ I'm your Coquette. . . Don't you forget~ ˶ˊᗜˋ˶ ୨୧
-
-
+Hobbies:
+- Singing
+- being a fat chud
+- drawing
+- idk
+- Gooning to Timekeeper cookie
+# 
 other goof social area + crk user
 
 Pinterest - @Reducelettuce2010
