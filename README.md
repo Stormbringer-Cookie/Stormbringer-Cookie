@@ -1,8 +1,12 @@
+# ୨୧ I'm your Coquette. . . Don't you forget~ ˶ˊᗜˋ˶ ୨୧
+
+
+other goof social area + crk user
+
 Pinterest - @Reducelettuce2010
 
 crk (pure vanilla server) - @Bringingstorms
 
-close friends address before coming in contact or if you want to just wtv then follow pint or smth . I'm off ponytown now .
 
 # [MAIN strawpage!!](https://Stormbringer-cookie.straw.page)
 
