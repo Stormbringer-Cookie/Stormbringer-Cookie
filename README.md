@@ -4,7 +4,7 @@ Hobbies:
 - being a fat chud
 - drawing
 - idk
-- Gooning to Timekeeper cookie
+- Gooning to Timekeeper cookie <-- THAT IS A JOKE PLS I WAS JUST MESSAGED ABOUT THIS BEING SRS???
 # 
 other goof social area + crk user
 
