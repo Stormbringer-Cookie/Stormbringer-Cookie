@@ -1,6 +1,6 @@
 # Thank you bruddas, mothas, crudders, shooters etc for the 300 followers
 
-# zaps you with lightning /rizz /j /stop the slashes /no /yes /maybe so? /maybe so nobody invited you bru 💀 /aye no be nice to maybe so /no /fair /2020 ahh humor /shut up now please /okay /okay get out of here /okay
+# zaps you with lightning /rizz /j /stop the slashes /no /yes /maybe so? /maybe so nobody invited you bru 💀 /aye no be nice to maybe so /no /fair /2020 ahh humor /shut up now please /okay /okay get out of here /okay /what is buddy on???💀💀 /idk /timestorm is a bop /liar /true /false /divorced parents /YO
 
 # ୨୧ I'm your Coquette. . . Don't you forget~ ˶ˊᗜˋ˶ ୨୧
 Hobbies:
