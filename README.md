@@ -10,12 +10,6 @@ Hobbies:
 - idk
 - Gooning to Timekeeper cookie <-- THAT IS A JOKE PLS I WAS JUST MESSAGED ABOUT THIS BEING SRS???
 # 
-other goof social area + crk user
-
-Pinterest - @Reducelettuce2010
-
-crk (pure vanilla server) - @Bringingstorms
-
 
 # [MAIN strawpage!!](https://Stormbringer-cookie.straw.page)
 
