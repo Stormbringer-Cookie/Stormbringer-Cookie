@@ -1,3 +1,4 @@
+<img width="1366" height="599" alt="Drawing sketchpad" src="https://github.com/user-attachments/assets/884da7e0-e5de-4b9c-9fe1-5c9038a27c83" />
 # Thank you bruddas, mothas, crudders, shooters etc for the 300 followers
 
 # zaps you with lightning /rizz /j /stop the slashes /no /yes /maybe so? /maybe so nobody invited you bru 💀 /aye no be nice to maybe so /no /fair /2020 ahh humor /shut up now please /okay /okay get out of here /okay /what is buddy on???💀💀 /idk /timestorm is a bop /liar /true /false /divorced parents /YO
